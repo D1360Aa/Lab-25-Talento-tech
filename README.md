@@ -1,1 +1,0 @@
-# Lab-25-Talento-tech
